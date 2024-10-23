@@ -7,7 +7,7 @@
   
 - 📫 You can reach me via email at ciaran.english.2020@mumail.ie
 - 😄 Pronouns: He/Him
-- :ireland: Irish
+- :world_map: Irish
 - ⚡ Fun fact: I have a weird obsession with supermarkets (mainly Tesco) and can probably navigate any store blindfolded.
 
 <!---
